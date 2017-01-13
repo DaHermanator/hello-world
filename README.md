@@ -6,4 +6,4 @@ You don't know what is coming.
 You have no way to stop it. 
 It will begin.
 
-End Transmission.
+End Transmission!
